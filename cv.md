@@ -12,6 +12,10 @@
 
 [dicord](https://discordapp.com/users/NatalyCoding#5541)
 
+[github](https://github.com/NatalyCoding)
+
+[codepen](codepen.io/natalycoding)
+
 &nbsp;
 
 3. Summary: 
