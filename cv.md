@@ -6,11 +6,11 @@
 
 [natalycoding@gmail.com](mailto:natalycoding@gmail.com) 
 
-[linkedin](https://www.linkedin.com/in/nataly-panakhyd-11a01441/) 
+[linkedin](https://www.linkedin.com/in/natalia-panakhyd-11a01441/) 
 
-[telegram](t.me/NatalyCoding) 
+[telegram](https://t.me/NatalyCoding) 
 
-[dicord](https://discordapp.com/users/Nataly Coding#5541)
+[dicord](https://discordapp.com/users/NatalyCoding#5541)
 
 &nbsp;
 
