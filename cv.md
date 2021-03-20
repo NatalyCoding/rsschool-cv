@@ -53,3 +53,10 @@ International SEO | Webpromoexperts | 2019, July - August
 English Language | Ivan Franko National University of Lviv | 2000 - 2005
 
 &nbsp;
+
+7. Languages:
+
+- English - Upper Intermediate
+- Polish - Intermediate 
+- Russian - Advanced
+- Ukrainian - Native
